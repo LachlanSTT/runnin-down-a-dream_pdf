@@ -21,9 +21,9 @@ This speech was originally delivered at the McCombs School at the University of 
 
 ### Sources
 
-Original video: [Runnin' Down a Dream: How to Succeed and Thrive in a Career You Love - Bill Gurley](url)
+Original video: [Runnin' Down a Dream: How to Succeed and Thrive in a Career You Love - Bill Gurley](https://youtu.be/xmYekD6-PZ8?si=V7g1VLphjblkQmNP)
 
-Transcript Source: [Transcript from James Clear's Website](url)
+Transcript Source: [Transcript from James Clear's Website](https://jamesclear.com/great-speeches/runnin-down-a-dream-by-bill-gurley)
 
 
 ---
